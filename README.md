@@ -24,7 +24,7 @@
 
 ### 📬 Contact
 
-📧 Email: [vinicius@email.com](mailto:vinicius@email.com)  
+📧 Email: [vinc-analist@hotmail.com](mailto:vinc-analist@hotmail.com)  
 💼 LinkedIn: [linkedin.com/in/vinicius](https://linkedin.com/in/vinicius)  
 🚀 GitHub: [github.com/vinicius](https://github.com/vinicius)
 
